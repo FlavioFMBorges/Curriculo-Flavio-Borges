@@ -1,2 +1,2 @@
-# Curriculo-Flavio-Borges
-Curriculo Flávio Borges
+# Projetos Flávio Borges
+Projetos Flávio Borges
